@@ -1,1 +1,0 @@
-# MitsuiGardenHotel_Sapporo
